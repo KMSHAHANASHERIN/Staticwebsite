@@ -1,3 +1,0 @@
-# Static-Website
-# Staticwebsite
-# Staticwebsite
